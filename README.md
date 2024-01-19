@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Django**
 
-- 💬 Ask me about **Django, React and DSA**
+- 💬 Ask me about **Python, Django, ML, React and DSA**
 
 - 📫 How to reach me **nandinisoni075@gmail.com**
 
