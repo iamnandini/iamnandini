@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **nandinisoni075@gmail.com**
 
-- ⚡ Fun fact **You think I am Introvert and you got it right👍😂**
+- ⚡ Fun fact: **People think I am an Introvert and they got it right👍😂**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
